@@ -1,0 +1,1 @@
+# allmaz1050.github.io
